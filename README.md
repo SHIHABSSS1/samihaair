@@ -1,3 +1,4 @@
+samihaair.com
 Samiha Air International is your reliable partner for all travel needs. We specialize in providing seamless flight bookings, customized holiday packages, and comprehensive visa assistance to destinations worldwide. Our mission is to make travel simple, affordable, and memorable for every customer.
 
 With a dedicated team of travel experts, Samiha Air International ensures that your journey is hassle-free from start to finish. Whether you are planning a leisure vacation, a business trip, or visiting loved ones abroad, we offer personalized solutions tailored to your preferences and budget.
